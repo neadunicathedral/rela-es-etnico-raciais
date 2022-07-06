@@ -1,1 +1,1 @@
-# rela-es-etnico-raciais
+# relacoes-etnico-raciais
